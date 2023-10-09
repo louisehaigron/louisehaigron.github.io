@@ -35,6 +35,16 @@ Netvibes, Feedly (débutant)
 - **WorldPress** (intermédiaire)
 - **Procreate** (intermédiaire)
 
+## Langues
+- **Français** (Langue maternelle)
+- **Anglais** (Niveau B1)
+- **Espagnol** (Niveau A2)
+
+## À savoir
+J'ai le permis B.
+
 ## Contact
 - Email : louisehaigron@gmail.com
+- Téléphone : 07 68 34 81 18
 - LinkedIn : [Clique ici !]([www.linkedin.com/in/louise-haigron-779989224])
+
