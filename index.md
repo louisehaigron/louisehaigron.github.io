@@ -37,4 +37,4 @@ Netvibes, Feedly (débutant)
 
 ## Contact
 - Email: louisehaigron@gmail.com
-- LinkedIn: [Mon LinkedIn]([https://www.linkedin.com/in/louisehaigron/]
+- LinkedIn: [Mon LinkedIn]([www.linkedin.com/in/louise-haigron-779989224])
