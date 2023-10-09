@@ -40,8 +40,9 @@ Netvibes, Feedly (débutant)
 - **Anglais** (Niveau B1)
 - **Espagnol** (Niveau A2)
 
-## À savoir
-J'ai le permis B.
+::: Petit plus
+J'ai le permis B
+:::
 
 ## Contact
 - Email : louisehaigron@gmail.com
