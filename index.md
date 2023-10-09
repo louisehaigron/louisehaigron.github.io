@@ -36,5 +36,5 @@ Netvibes, Feedly (débutant)
 - **Procreate** (intermédiaire)
 
 ## Contact
-- Email: louisehaigron@gmail.com
-- LinkedIn: [Clique ici !]([www.linkedin.com/in/louise-haigron-779989224])
+- Email : louisehaigron@gmail.com
+- LinkedIn : [Clique ici !]([www.linkedin.com/in/louise-haigron-779989224])
