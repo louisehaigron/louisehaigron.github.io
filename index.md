@@ -46,5 +46,5 @@ Netvibes, Feedly (débutant)
 ## Contact
 - Email : louisehaigron@gmail.com
 - Téléphone : 07 68 34 81 18
-- LinkedIn : [Clique ici !]([https://www.linkedin.com/in/louise-haigron])
+- LinkedIn : [Clique ici !]([www.linkedin.com/in/louisehaigron35])
 
