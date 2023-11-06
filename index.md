@@ -47,5 +47,5 @@ J'ai le permis B
 ## Contact
 - Email : louisehaigron@gmail.com
 - Téléphone : 07 68 34 81 18
-- LinkedIn : [Clique ici !]([https://www.linkedin.com/in/louise-haigron-779989224])
+- LinkedIn : [Clique ici !]([https://www.linkedin.com/in/louise-haigron])
 
