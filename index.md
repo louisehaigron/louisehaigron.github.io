@@ -40,7 +40,7 @@ Netvibes, Feedly (débutant)
 - **Anglais** (Niveau B1)
 - **Espagnol** (Niveau A2)
 
-> [!NOTE]
+> [!PETIT PLUS]
 > J'ai le permis B
 
 ## Contact
