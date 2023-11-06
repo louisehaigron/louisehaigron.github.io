@@ -4,7 +4,7 @@
 Actuellement en deuxième année de BUT InfoNum, je suis passionnée du digital. Créative, organisée et à l’écoute, je suis capable d'assurer la mise en ligne et l'actualisation de contenus sur un site Internet et sur les réseaux sociaux, et je suis familière avec l'utilisation d’outils informatiques tels que la suite Adobe (Photoshop, Illustrator, InDesign), Canva ou Procreate.
 
 ## Formation
-- **2021 - present :** BUT information communication option numérique dans les organisations,*IUT Bordeaux Montaigne, Bordeaux*
+- **2021 - present :** BUT information communication option numérique dans les organisations, *IUT Bordeaux Montaigne, Bordeaux*
 - **2018 - 2021 :** Bac STAV (sciences de l’agronomie et du vivant) , *St Exupéry, Vitré*
 
 ## Expériences professionnelles
